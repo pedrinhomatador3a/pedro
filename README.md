@@ -1,3 +1,5 @@
-Boas vindas ao meu perfil 💙💙
+Boas vindas ao meu perfil 💙
 
-![https://tenor.com/pt-BR/view/so-gif-27368160]
+segue no insta @pedrohenriquede3167 🔥
+
+![https://tenor.com/pt-BR/view/monkey-monke-banan-banana-eating-gif-21371713]
